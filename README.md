@@ -1,7 +1,1 @@
-
-<details>
-  <summary>Updating Media</summary>
-  <pre><code>
-The repo is private 🖕
-  </code></pre>
-</details>
+# First of all like brother like sister, hear the audio
