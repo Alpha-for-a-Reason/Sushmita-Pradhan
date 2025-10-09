@@ -31,3 +31,5 @@ https://github.com/user-attachments/assets/3e154e79-91a7-4c6f-8197-649cd05856a6
 # RAW Material, It's Abdul again, kindly please wear glasses before watch, Sushmita, Athar & Another One
 
 https://github.com/user-attachments/assets/aa55626d-de1e-46fe-a7e7-f47b5de8febd
+## Physical Intimacy exact clip time 11:56 but you can hear the whole audio
+https://github.com/user-attachments/assets/775a03a3-1cd7-415b-8ea8-5187eb663a6e
