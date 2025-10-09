@@ -16,3 +16,4 @@
 # (1). Like Brother Like Sister
 ## She's literally saying- ki hm kya r* khana me 
 https://github.com/user-attachments/assets/038007e9-cad1-44ee-8661-f79390cf7664
+# Guess what, when i unable to reply love you too, To usne 4 alag bandoon ko i love you bolke 4 jan se i love you too reply v liya, (Isko Chinarpanti bolte hai) ⚠️ aur usme abdul v samil hai, iska matlab baki  4 jan ke saath v wo 😏
