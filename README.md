@@ -1,4 +1,16 @@
 # First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself.
+# Muh me Radha Rani, Khatu Shyam aur bagal me Abdul 👍
+![Image](https://github.com/user-attachments/assets/fb4ccb0c-4a99-48db-89d8-3406f74ed132)
+
+![Image](https://github.com/user-attachments/assets/a5d61fd5-0d37-4db0-a2a7-6a6d871c4a8c)
+
+![Image](https://github.com/user-attachments/assets/87dbc060-5c7f-48e5-a8d8-90f69a48c285)
+
+![Image](https://github.com/user-attachments/assets/2fa4017f-30d8-4ebf-965a-c26486607920)
+
+![Image](https://github.com/user-attachments/assets/d28b73a9-344d-446c-b692-7c20d516fd5a)
+
+![Image](https://github.com/user-attachments/assets/c92171d7-f398-4226-a310-7540b13f64a4)
 # Each and every evidence you have to read, hear and watch carefully, then you'll know the truth.
 # 🎧 Unmute the Audio bcz the default mode is mute ⚠️
 # (1). Like Brother Like Sister
