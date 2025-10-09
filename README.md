@@ -1,4 +1,4 @@
-# First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself.
+# First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself. There are different different person in her phone's Private Folder.
 # Muh me Radha Rani, Khatu Shyam aur bagal me Abdul 👍
 ![Image](https://github.com/user-attachments/assets/fb4ccb0c-4a99-48db-89d8-3406f74ed132)
 
@@ -17,3 +17,4 @@
 ## She's literally saying- ki hm kya r* khana me 
 https://github.com/user-attachments/assets/038007e9-cad1-44ee-8661-f79390cf7664
 # Guess what, when i unable to reply love you too, To usne 4 alag bandoon ko i love you bolke 4 jan se i love you too reply v liya, (Isko Chinarpanti bolte hai) ⚠️ aur usme abdul v samil hai, iska matlab baki  4 jan ke saath v wo 😏
+## Wanna hear all 4 audio
