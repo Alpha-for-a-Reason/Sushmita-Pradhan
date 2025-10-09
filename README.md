@@ -25,3 +25,4 @@ https://github.com/user-attachments/assets/d4797883-4205-4957-ada6-a9e89a85fcc2
 https://github.com/user-attachments/assets/3d5663ce-9d03-4c77-bd9f-46a0d9219313
 
 https://github.com/user-attachments/assets/3e154e79-91a7-4c6f-8197-649cd05856a6
+# Here's the Locanto SS from her phone
