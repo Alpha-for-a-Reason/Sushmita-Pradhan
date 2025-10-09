@@ -33,3 +33,6 @@ https://github.com/user-attachments/assets/3e154e79-91a7-4c6f-8197-649cd05856a6
 https://github.com/user-attachments/assets/aa55626d-de1e-46fe-a7e7-f47b5de8febd
 ## Physical Intimacy exact clip time 11:56 but you can hear the whole audio
 https://github.com/user-attachments/assets/775a03a3-1cd7-415b-8ea8-5187eb663a6e
+# She can accept anyone proposal, Sacchi aur charitrawan aurat halat badalti hai mard nhi, baki aap samajhdar ho.
+## Clip time 01:54 but you can hear the whole audio
+https://github.com/user-attachments/assets/07d6e3d9-dd94-48c5-9d03-5ed489e35ee8
