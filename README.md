@@ -1,3 +1,4 @@
+# B!T¢H why you uploaded my dihrrah... pic on instagram, who gave you the authority. Now you have to deal with the same thing you did to me.
 # First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself. There are different different person in her phone's Private Folder.
 # Muh me Radha Rani, Khatu Shyam aur bagal me Abdul 👍
 ![Image](https://github.com/user-attachments/assets/fb4ccb0c-4a99-48db-89d8-3406f74ed132)
