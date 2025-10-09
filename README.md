@@ -18,3 +18,10 @@
 https://github.com/user-attachments/assets/038007e9-cad1-44ee-8661-f79390cf7664
 # Guess what, when i unable to reply love you too, To usne 4 alag bandoon ko i love you bolke 4 jan se i love you too reply v liya, (Isko Chinarpanti bolte hai) ⚠️ aur usme abdul v samil hai, iska matlab baki  4 jan ke saath v wo 😏
 ## Wanna hear all 4 audio
+https://github.com/user-attachments/assets/5fa2afe4-51b3-4daa-945b-dab4aa4f3ddc
+
+https://github.com/user-attachments/assets/d4797883-4205-4957-ada6-a9e89a85fcc2
+
+https://github.com/user-attachments/assets/3d5663ce-9d03-4c77-bd9f-46a0d9219313
+
+https://github.com/user-attachments/assets/3e154e79-91a7-4c6f-8197-649cd05856a6
