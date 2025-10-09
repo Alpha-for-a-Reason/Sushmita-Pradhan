@@ -14,7 +14,7 @@
 ![Image](https://github.com/user-attachments/assets/c92171d7-f398-4226-a310-7540b13f64a4)
 # Each and every evidence you have to read, hear and watch carefully, then you'll know the truth.
 # 🎧 Unmute the Audio bcz the default mode is mute ⚠️
-# (1). Like Brother Like Sister
+# Like Brother Like Sister
 ## She's literally saying- ki hm kya r* khana me 
 https://github.com/user-attachments/assets/038007e9-cad1-44ee-8661-f79390cf7664
 # Guess what, when i unable to reply love you too, To usne 4 alag bandoon ko i love you bolke 4 jan se i love you too reply v liya, (Isko Chinarpanti bolte hai) ⚠️ aur usme abdul v samil hai, iska matlab baki  4 jan ke saath v wo 😏
@@ -36,3 +36,4 @@ https://github.com/user-attachments/assets/775a03a3-1cd7-415b-8ea8-5187eb663a6e
 # She can accept anyone proposal, Sacchi aur charitrawan aurat halat badalti hai mard nhi, baki aap samajhdar ho.
 ## Clip time 01:54 but you can hear the whole audio
 https://github.com/user-attachments/assets/07d6e3d9-dd94-48c5-9d03-5ed489e35ee8
+# 
