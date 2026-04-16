@@ -51,4 +51,10 @@ https://github.com/user-attachments/assets/775a03a3-1cd7-415b-8ea8-5187eb663a6e
 # She can accept anyone proposal, Sacchi aur charitrawan aurat halat badalti hai mard nhi, baki aap samajhdar ho.
 ## Clip time 01:54 but you can hear the whole audio
 https://github.com/user-attachments/assets/07d6e3d9-dd94-48c5-9d03-5ed489e35ee8
-# 
+
+# She also drink Alcohol & Cigarettes
+<img width="1220" height="397" alt="Image" src="https://github.com/user-attachments/assets/1ec58ed5-d584-4053-b76c-dcc3d742caa1" />
+
+
+
+<img width="1220" height="423" alt="Image" src="https://github.com/user-attachments/assets/5403180a-5968-4926-b73a-6ed57e08b94f" />
