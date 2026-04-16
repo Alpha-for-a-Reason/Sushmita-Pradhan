@@ -12,17 +12,19 @@
 
 # First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself. There are different different person in her phone's Private Folder.
 
-# Muh me Radha Rani, Khatu Shyam aur bagal me Abdul 👍
+# She got married with me
 
 ![Image](https://github.com/user-attachments/assets/fb4ccb0c-4a99-48db-89d8-3406f74ed132)
 
 ![Image](https://github.com/user-attachments/assets/a5d61fd5-0d37-4db0-a2a7-6a6d871c4a8c)
 
+# She got married with Aashu
+
 ![Image](https://github.com/user-attachments/assets/87dbc060-5c7f-48e5-a8d8-90f69a48c285)
 
 ![Image](https://github.com/user-attachments/assets/2fa4017f-30d8-4ebf-965a-c26486607920)
 
-# Physical with ABDUL, She's a hindu girl and the guy is a Muslim
+# Muh me Radha Rani, Khatu Shyam aur bagal me Abdul 👍 Physical with ABDUL, She's a hindu girl and the guy is a Muslim
 
 ![Image](https://github.com/user-attachments/assets/d28b73a9-344d-446c-b692-7c20d516fd5a)
 
