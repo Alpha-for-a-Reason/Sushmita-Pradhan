@@ -55,6 +55,6 @@ https://github.com/user-attachments/assets/07d6e3d9-dd94-48c5-9d03-5ed489e35ee8
 # She also drink Alcohol & Cigarettes
 <img width="1220" height="397" alt="Image" src="https://github.com/user-attachments/assets/1ec58ed5-d584-4053-b76c-dcc3d742caa1" />
 
-
+# She Abuse my whole ST/SC/Adivasi Community
 
 <img width="1220" height="423" alt="Image" src="https://github.com/user-attachments/assets/5403180a-5968-4926-b73a-6ed57e08b94f" />
