@@ -1,4 +1,7 @@
 # B!T¢H why you uploaded my dihrrah... pic on instagram. Now you have to deal with the same thing you did to me.
+
+# She upload the naked image of my dih.. due to GitHub restriction i blurred the image
+
 <img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/e0eb063d-0b04-4699-9695-3a6ce5fee044" />
 
 # These are the things she did
