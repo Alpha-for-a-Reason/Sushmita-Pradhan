@@ -2,7 +2,10 @@
 <img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/e0eb063d-0b04-4699-9695-3a6ce5fee044" />
 
 # These are the things she did
-
+<img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/1cd2d7c0-460f-491e-9c8a-95e17d1ef3cc" />
+<img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/4571dff7-b543-46d8-89be-1ad723b7d557" />
+<img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/8d3b9a6f-2837-4960-a88d-3ccd661a66a4" />
+<img width="1220" height="2712" alt="Image" src="https://github.com/user-attachments/assets/f89cabd3-3c29-4821-b741-9f0b150f9ca1" />
 
 # First of all i have to tell everyone something, I'm not done anything wrong, it's her who did each and everything to me, and now she's playing victim card to defend herself. There are different different person in her phone's Private Folder.
 
