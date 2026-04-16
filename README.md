@@ -13,6 +13,8 @@
 
 ![Image](https://github.com/user-attachments/assets/2fa4017f-30d8-4ebf-965a-c26486607920)
 
+# Physical with ABDUL, She's a hindu girl and the guy is a Muslim
+
 ![Image](https://github.com/user-attachments/assets/d28b73a9-344d-446c-b692-7c20d516fd5a)
 
 ![Image](https://github.com/user-attachments/assets/c92171d7-f398-4226-a310-7540b13f64a4)
